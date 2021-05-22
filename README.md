@@ -1,0 +1,2 @@
+# deneyap-hafta2
+ 
